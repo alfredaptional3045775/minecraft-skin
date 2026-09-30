@@ -1,1 +1,0 @@
-Minecraft skin file host.
